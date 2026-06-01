@@ -1,15 +1,15 @@
 🪽## hi ,hello ,hey ✦🪼
-°
-°
+. 
+. 
 🍥Mi name is Sily/Velvet! ✦
-°
-°
+. 
+. 
 🫚🍋‍🟩On pony town<! ✦      ೄྀ☕︎
-°
-°
+.
+. 
 🦑 multiplefandom! ✦      ✷✷
-°
-° 
+. 
+. 
 i LOVE cheese. 🧀🧀!!!
 
 #OK ? Ok. 🍒🍒🍒🍒🍒
@@ -31,4 +31,4 @@ i LOVE cheese. 🧀🧀!!!
 -
 - UH DATS ALL IG... (FOR NOW)✧✦
 
-UHH BREAD✹✦-
+UHH BREAD. 
