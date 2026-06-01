@@ -20,7 +20,7 @@ i LOVE cheese. 🧀🧀!!!
 - 
 - 👯 I’m Looking to Collaborate on With...my baBY GURL MY SHAYLA MY LOVE MY EVRYTIHNG Lys❤✧✧
 - 
-- 🤔 I’m looking foforelp with ...nothing,,Nothing at all, I'm fine as I am.✧
+- 🤔 I’m looking help with ...nothing,,Nothing at all, I'm fine as I am.✧
 - 
 - 💬 Ask me about ...anything you want !!✧
 - 
